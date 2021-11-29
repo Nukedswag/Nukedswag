@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Nukedswag
+- 👀 I’m interested in old cars, 60-x music and scandinavian nature.
+- 🌱 I’m currently learning Python, SQL and Java.
+- 💞️ I’m looking to collaborate on Yandex.
+- 📫 How to reach me to telegram: @nuked22, mail: nukedswag@gmail.com.
